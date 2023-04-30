@@ -1,5 +1,9 @@
 # Holaaa!
-mi nombre es 0xBqz pero soy conosido por koko y un jugador muy apasionado a roblox. La primera vez que jugue esto fue en 2016 aunque la cuenta que uso actualmente sea mas reciente. pero me empeze a viciar realmente por mediados de 2018. si tienes alguna duda sobre mi contactame :) por discord babeee#0001. Estoy abierto a aceptar solicitudes y si me ves jugando unete con confianza. ademas juego bastante seguido. si es que no estoy en semana de examenes. Yo no te borrare por estar inactivo o por que no juegemos :P. Mis juegos favoritos son roblox, Animal Crossing, Elden Ring, Minecraft, Geometry Dash! por cierto mis juegos favoritos son:
+mi nombre es 0xBqz pero soy conosido por koko y un jugador muy apasionado a roblox. La primera vez que jugue esto fue en 2016 aunque la cuenta que uso actualmente sea mas reciente. pero me empeze a viciar realmente por mediados de 2018. si tienes alguna duda sobre mi contactame :) por discord babeee#0001. Estoy abierto a aceptar solicitudes y si me ves jugando unete con confianza. ademas juego bastante seguido. si es que no estoy en semana de examenes.
+
+De mis cantantes favoritos son: Lana del rey, Teo?, beyonce, PayDay, Harry Styles entre muchos otros. pero siempre estare abierto a escuchar recomendaciones!, cada vez estoy mas con el Punk por ejemplo.
+
+Amiguemos :P, Yo no te borrare por estar inactivo o por que no juegemos :P. Mis juegos favoritos son roblox, Animal Crossing, Elden Ring, Minecraft, Geometry Dash! por cierto mis juegos favoritos son:
 * [**Prision Life**](https://www.roblox.com/games/155615604/Prison-Life)
 * [**Da Hood**](https://www.roblox.com/games/2788229376/Da-Hood)
 * [**Murders vs Sherifs**](https://www.roblox.com/games/5154858502/Murderers-vs-Sheriffs)
@@ -25,3 +29,21 @@ Son: Kaka, Keke, Kiki y Kuku :3. Haz click en la imagen para ver los perfiles
 [![image](https://tr.rbxcdn.com/40c142d206a52f39aa8e5692b5d75fe4/352/352/Avatar/Png)](https://www.roblox.com/users/280954129/profile)
 [![image](https://tr.rbxcdn.com/abf09e9063d56c087bd4988a684bb595/352/352/Avatar/Png)](https://www.roblox.com/users/2387785867/profile)
 [![image](https://tr.rbxcdn.com/0e51218c203ce8f5e1962e2c7f8f11de/352/352/Avatar/Png)](https://www.roblox.com/users/1388327784/profile)
+
+### # Mis Componentes son:
+* RTX 3060 Ti
+* 16 GIGAS DE RAM
+* RYZEN 7
+* SSD
+* 500 GIGAS ALMACENAMIENTO
+
+
+* Mouse Logitech G203 (Muy recomendable)
+* Teclado Generico 😒
+
+(Me la regalaron x mis 15, antes jugava en una pc horrible 😰)
+
+Mas Aparte Uso [**RoShade.me**](https://roshade.com/) Para usar shaders. 
+No uso FPS unlocker por que no lo veo necesario
+
+Nada de esto no es necesario para jugar roblox, pague de mas :/
